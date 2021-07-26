@@ -4,7 +4,7 @@ He likes
 Markup : * swimmming: swims competitively in his club.
          * Likes to play videogames (CoD, LoL, etc)
          *  Plays piano and sometimes plays tennis.
-          * Watches Youtube and Netflix Liked to watch PewDiePie, Vanossgaming but currently watches moistcr1tikal and he is one of the few people he likes to watch streams of.
+         * Watches Youtube and Netflix Liked to watch PewDiePie, Vanossgaming but currently watches moistcr1tikal and he is one of the few people he likes to watch streams of.
 His favourite TV Show is The Office, His favourite book is Unbroken. It is a book based on a true story of a US athlete during WWII.
 His favourite class is his physics class this year. He hopes he can work for NASA and he really enjoys computer science.
 Short term goals: Get into a good colledge, potentially with a gap year. Doesn't have a very detailed plan of the future as doing that now would be setting yourself up for dissapointment.
