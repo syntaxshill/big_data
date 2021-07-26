@@ -3,6 +3,7 @@
 ### Westchester, NY
 ## What are your hobbies/interests?
 ### Play/Watch Sports. Play Track/Basketball
+![Basketball](https://cdn.nba.com/manage/2021/07/franceusa8.jpg "Basketball")
 ## What are your favorite books, TV shows, or movies?
 ### Watching modern family. 
 ## What is your favorite class that you ever took?
