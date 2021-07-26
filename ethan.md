@@ -11,3 +11,4 @@
 ### To bench 135 pounds + get college essays done 
 ## Any strong opinions on inconsequential topics?
 ### Shouldn't pay US corn farmers 
+![Corn](https://cdn.britannica.com/36/167236-050-BF90337E/Ears-corn.jpg "Corn")
