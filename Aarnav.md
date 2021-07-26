@@ -1,8 +1,8 @@
 # Aarnav Tare
 
-Aarnav is Indian living in America. 
-His hobbies are video games, basketball, and cooking. 
-His favorite book is outlier, and he also loves anime. 
-AP Computer Science
-He wants to develop his skills in every aspect. 
-No strong opinions. 
+1. Aarnav is Indian living in America. 
+2. His hobbies are video games, basketball, and cooking. 
+3. His favorite book is outlier, and he also loves anime. 
+4. AP Computer Science
+5. He wants to develop his skills in every aspect. 
+6. No strong opinions. 
